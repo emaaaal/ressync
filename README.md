@@ -1,4 +1,4 @@
-### Hi, Just call me [Ressync!](https://github.com/ressync) ˘ᆺ˘
+### Hi there, Just call me [Ressync!](https://github.com/ressync) ˘ᆺ˘
 
 [![黒猫の死](https://i.ibb.co/X4S2w9j/Black-Cat-Death-HLTH.gif)](https://github.com/ressync)
 
